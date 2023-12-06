@@ -17,4 +17,5 @@ Conclusion - Tsega, Elizabeth
 
 Project 2:
 <br>
-Clean and Linear models: Mariah Hudson, Tsega Kidanu 
+Clean and Linear models: Mariah Hudson, Tsega Kidanu
+Analysis: Zoe Van Winckel
