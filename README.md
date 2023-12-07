@@ -21,9 +21,9 @@ Clean and Linear models: Mariah Hudson, Tsega Kidanu
 <br><br>
 Summary - 
 <br><br>
-Data writing - Zoe
+Data writing - Zoe Van Winckel
 <br><br>
-Results - Elizabeth, 
+Results - Elizabeth Peterson
 <br><br>
-Conclusion - Elizabeth, 
+Conclusion - Elizabeth Peterson
 <br><br>
