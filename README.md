@@ -19,7 +19,7 @@ Project 2:
 <br>
 Clean and Linear models: Mariah Hudson, Tsega Kidanu 
 <br><br>
-Summary - 
+Summary - Varun Pavuloori
 <br><br>
 Data writing - Zoe Van Winckel
 <br><br>
