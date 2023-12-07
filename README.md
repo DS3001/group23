@@ -18,3 +18,12 @@ Conclusion - Tsega, Elizabeth
 Project 2:
 <br>
 Clean and Linear models: Mariah Hudson, Tsega Kidanu 
+<br><br>
+Summary - 
+<br><br>
+Data writing - Zoe
+<br><br>
+Results - Elizabeth, 
+<br><br>
+Conclusion - Elizabeth, 
+<br><br>
