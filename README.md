@@ -23,7 +23,7 @@ Summary - Varun Pavuloori
 <br><br>
 Data writing - Zoe Van Winckel
 <br><br>
-Results - Elizabeth Peterson
+Results - Elizabeth Peterson, Hank Dickerson
 <br><br>
-Conclusion - Elizabeth Peterson
+Conclusion - Elizabeth Peterson, Hank Dickerson
 <br><br>
